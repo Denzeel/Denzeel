@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **elliothdenzel14@outlook.com**
 
-- ⚡ Fun fact **Im passionate about social issues**
+- ⚡ Fun fact **I love 3d modeling, blender has become my most recent hyperfixation**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
